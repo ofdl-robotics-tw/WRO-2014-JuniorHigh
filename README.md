@@ -1,4 +1,4 @@
-# WRO 2014 JuniorHigh
+# WRO 2014 Junior High
 ![](https://i1.ytimg.com/vi/mRAhpF3LxrU/maxresdefault.jpg)
 Video: [YouTube](https://www.youtube.com/watch?v=mRAhpF3LxrU)
 
